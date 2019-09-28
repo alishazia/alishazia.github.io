@@ -1,1 +1,1 @@
-### Sahil :heart_eyes: loves :heartbeat: Shazia :blush:
+### Sahil loves Shazia
